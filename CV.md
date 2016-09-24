@@ -10,7 +10,7 @@
 
 ####**Education**  
 ---
-**01/2016-now**			          
+**01/2016-Present**			          
 _Master Economics_  
 	Tilburg University, Tilburg  
 	Expected graduation date: January 2017
