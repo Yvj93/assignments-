@@ -77,8 +77,8 @@ _Volunteer/Intern_
 _Member of Business Professionals of America_  
 			Lake City High school, Coeur d’Alene   
 			Career and technical student organization  
-•	2010: 1st place at Regional’s
-•	Committees: National Center Capital Improvements Campaign, Safety Awareness
+•	2010: 1st place at Regional’s   
+•	Committees: National Center Capital Improvements Campaign, Safety Awareness   
 •	2011: Intern at National leadership Conference, Washington D.C.
 
 
